@@ -1,4 +1,8 @@
-****服务器IP：fns.pub****
+**服务器IP：fns.pub**
+
+**服务器IP：fns.pub**
+
+**服务器IP：fns.pub**
 
 ![img](https://thingy.top/view.php/dcf932f6f2628330371696b71f682af4.png)
 
