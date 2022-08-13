@@ -4,6 +4,12 @@
 
 **服务器IP：fns.pub**
 
+**服务器版本：1.18.x**
+
+**服务器版本：1.18.x**
+
+**服务器版本：1.18.x**
+
 ![img](https://thingy.top/view.php/dcf932f6f2628330371696b71f682af4.png)
 
 ![img](https://thingy.top/view.php/a2ae0c720af9afcd449c6a03167b65d4.png)
